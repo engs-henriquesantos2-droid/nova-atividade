@@ -2,5 +2,5 @@
 ---------------------------------------------
 # Aprendendo na nova aula, e observando.
  
-## Subtitul<<<<<<<o
+## Subtitulo
 ### NOVA ATIVIDADE 
