@@ -10,3 +10,12 @@
 # deu erro 
 # Não da, amanha tem que trabalhar de novo, que vida triste, clt fudido 
 # queria uma uva
+# as vezes um ser é um ser 
+# queria uma prova de matematica 
+# nao da
+# computador 
+# informatica 4
+# @
+# @haydrec
+# lan rouse 
+# comidf
