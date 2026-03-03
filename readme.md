@@ -23,3 +23,4 @@
 # <!DOCTYPE html>
 # pior que to curtindo essa aula
 # mas to ancioso pra aprender a fazer os comando e talz por aqui nao pelo portunhol 
+# portugol é apenas uma base pro vscode , e mais facil aprender aq doq por la, o problema e q tem q saber por cair na rova ;(
