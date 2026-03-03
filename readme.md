@@ -9,3 +9,4 @@
 # Professor ensina bem, aula pratica 
 # deu erro 
 # Não da, amanha tem que trabalhar de novo, que vida triste, clt fudido 
+# queria uma uva
